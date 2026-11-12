@@ -1,6 +1,8 @@
-will you wake up tomorrow?
+![image alt](TvN6gIG7DvsJWQ8725ld.gif) 
 
-README work in progress...
+Swallow your ego, or it will. 
+        Keep your head down before those eyes peel open.
+    
+![image alt](Untitled962_20261112230954.png)
 
-![image alt](Untitled963_20261109190151.png)
-![image alt](DozerSprite.webp)
+![image alt](20250101_215743.webp) 
